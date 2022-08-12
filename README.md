@@ -1,4 +1,4 @@
-### Olá! Seja bem-vindo ao perfil do Gustavo! 👋
+### Olá! Seja bem-vindo(a) ao perfil do Gustavo! 👋
 
 ##
 
